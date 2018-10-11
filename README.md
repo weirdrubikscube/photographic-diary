@@ -2,7 +2,7 @@ Interactive Art piece (cd-rom) from 2001-2002 about growing up on the Autism Spe
 
 [photographic-diary.com](https://weirdrubikscube.github.io/photographic-diary/)
 
-*Flash pluh-in required.*
+*(Flash pluh-in required.)*
 
 ***
 # Photographic Diary
