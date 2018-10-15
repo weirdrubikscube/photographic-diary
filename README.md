@@ -1,6 +1,7 @@
 Interactive Art piece (cd-rom) from 2001-2002 about growing up on the Autism Spectrum and struggling with Gender Identity.
 
 ### [photographic-diary.com](https://weirdrubikscube.github.io/photographic-diary/)
+by [govy](http://www.dontstareatthesun.com/about/)
 
 *(Flash plug-in required.)*
 
